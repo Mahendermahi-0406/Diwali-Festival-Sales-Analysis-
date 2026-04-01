@@ -1,2 +1,0 @@
-# Diwali-Festival-Sales-Analysis-
-
